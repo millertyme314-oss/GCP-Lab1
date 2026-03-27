@@ -56,4 +56,4 @@ Created a VM instance, performed health, metadata &amp; validity checks
 
 
  
-![](https://miro.medium.com/1*NKN0Oh5-2MaR2q5XJZ1UYA.jpeg)
+![](https://i.ytimg.com/vi/I1v0DZYcFeA/maxresdefault.jpg)
